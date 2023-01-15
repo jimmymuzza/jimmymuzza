@@ -10,4 +10,4 @@
 
 🎓 I am always seeking to expand my knowledge and skills in the field of cybersecurity and I am passionate about helping organizations protect their networks and data. My goal is to help organizations build a robust and resilient cybersecurity posture, ensuring the safety and integrity of their data and systems.
 
-🥷Outside the world of tech, I am a keen photographer and love taking pictures of atchtecture and landscapes. I am also a black belt in Hapkido but haven't quite got my ninja scouts badge just yet.
+🥷Outside the world of tech, I am a keen photographer and love taking pictures of architecture and landscapes. I am also a black belt in Hapkido but haven't quite got my ninja scout badge just yet.
